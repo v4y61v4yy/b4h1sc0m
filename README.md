@@ -7,7 +7,7 @@
 </a>
 
 <h2><a href="https://t2m.io/2284401">Bahiscom Giriş İçin Tıklayınız ✅</a></h2>
-<p>Sektörün en güvenilir sitelerinde şansınızı deneyin ve kazanın!</p>
+<p>Sektörün en güvenilir sitelerinde şansınızı deneyin ve kazanıns!</p>
 
 <h3>Bahiscom - Bahiscom - Bahiscom</h3>
 <p>Hemen giriş yapın, oyun keyfini doruklarda yaşayın!</p>
